@@ -26,7 +26,7 @@
 </p>
 
 <p align="center">
-  <a href="https://blog.spacehey.com/entry?id=](https://blog.spacehey.com/entry?id=1132466"><b>DNI / BYF</b></a>
+  <a href="https://blog.spacehey.com/entry?id=1132466](https://blog.spacehey.com/entry?id=1132466"><b>DNI / BYF</b></a>
 </p>
 
 ***
