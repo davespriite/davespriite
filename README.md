@@ -26,7 +26,7 @@
 </p>
 
 <p align="center">
-  <a href="https://blog.spacehey.com/entry?id=1132466"><b>DNI / BYF</b></a> .. <a href="https://blog.spacehey.com/entry?id=1137895"><b>SYS GUIDE</b></a>  
+  <b>LINKS ARE CURRENTLY</b> .. <b>DOWN, PLEASE BE PATIENT!</b>
 </p>
 
 ***
