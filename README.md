@@ -19,7 +19,7 @@
 </p>
 
 <p align="center">
-  <b>{<img src="https://64.media.tumblr.com/ef4f3e441799965fdb43e594875e640a/01244fd8cc4a0103-7a/s75x75_c1/7ad568f4953f3f8a9ee1ce2aaef05cf2f3d5e652.webp">}</b>  ;  <b>MEDIC</b>  <i>or</i>  <b>meds</b>  ੈ♡˳  he/him OR ask for pronouns. 
+  <b>{<img src="https://64.media.tumblr.com/ef4f3e441799965fdb43e594875e640a/01244fd8cc4a0103-7a/s75x75_c1/7ad568f4953f3f8a9ee1ce2aaef05cf2f3d5e652.webp">}</b>  ;  <b>GRIMM</b>  <i>or</i>  <b>baphie</b>  ੈ♡˳  he/him OR ask for pronouns. 
 </p>
 <p align="center">
   <i>voidflux + a-spec</i>  <i><b>,</b></i>  6teen <b>{<img src="https://64.media.tumblr.com/26bd0f2b0e5d1e1fb88002803ca53e9f/a71119862d2437c9-12/s75x75_c1/51d784f473404c50ce9cab85b192ac6fee759eeb.gifv">}</b>
