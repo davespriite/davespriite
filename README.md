@@ -51,15 +51,15 @@
   <br>
   <b>{<img src="https://64.media.tumblr.com/d39d479b7d6414d683189dffaace7e98/c55fc22ddd74d886-c9/s75x75_c1/c3a078edd5077f0c0b84e91715258a584c32d126.gifv">} -</b> <i>pokemon</i>
   <br>
-  - <b>{<img src="https://64.media.tumblr.com/bda4e8b766d6f5aaa4f8505aea3ef0ea/650b905690781a76-d1/s75x75_c1/d18729f6b0a516079e96af58599fe786d0dcf9c8.gifv">} -</b> <i>roblox</i>
+  <b>{<img src="https://64.media.tumblr.com/bda4e8b766d6f5aaa4f8505aea3ef0ea/650b905690781a76-d1/s75x75_c1/d18729f6b0a516079e96af58599fe786d0dcf9c8.gifv">} -</b> <i>roblox</i>
   <br>
   <b>{<img src="https://64.media.tumblr.com/f5cc1ec1f8eae991a8c88644f6e756c5/ef2c682e14cdd1c2-78/s75x75_c1/205e4e6764854421b937bbb1aaeea5734d096361.gifv">} -</b> <i>portal 1 & 2</i>
   <br>
-  - <b>{<img src="https://64.media.tumblr.com/59f6b3904b1e260981a3698aacb2f57d/50d57e26184a7b02-96/s75x75_c1/1021f69dd43780c0f3b18fd9db5c74235ced085d.gifv">} -</b> <i>hades game</i>
+  <b>{<img src="https://64.media.tumblr.com/59f6b3904b1e260981a3698aacb2f57d/50d57e26184a7b02-96/s75x75_c1/1021f69dd43780c0f3b18fd9db5c74235ced085d.gifv">} -</b> <i>hades game</i>
   <br>
-  - <b>{<img src="https://64.media.tumblr.com/919458390a5a8fab193afe88f138ea7f/2e61613ad1dd2d72-d5/s75x75_c1/54b52c2b9d8ec6345a4544ce3723909fc9e20289.gifv">} -</b> <i>musical theatre</i>
+  <b>{<img src="https://64.media.tumblr.com/919458390a5a8fab193afe88f138ea7f/2e61613ad1dd2d72-d5/s75x75_c1/54b52c2b9d8ec6345a4544ce3723909fc9e20289.gifv">} -</b> <i>musical theatre</i>
   <br>
-  - <b>{<img src="https://64.media.tumblr.com/bc613d5cbb706185bdfe7e701a2e7d63/2e61613ad1dd2d72-92/s75x75_c1/1c0ae3c3e52c985efbc1f1c41c0fa7766da658f9.gifv">} -</b> <i>hollow knight</i>
+  <b>{<img src="https://64.media.tumblr.com/bc613d5cbb706185bdfe7e701a2e7d63/2e61613ad1dd2d72-92/s75x75_c1/1c0ae3c3e52c985efbc1f1c41c0fa7766da658f9.gifv">} -</b> <i>hollow knight</i>
 </p>
 <p align="center">
   <img src="https://64.media.tumblr.com/abce10866a2c0594287824cbb7197178/4f7dfb36276881c0-74/s500x750/0d91aebdbf972fe95782cedc4fe09b303569befd.pnj">
