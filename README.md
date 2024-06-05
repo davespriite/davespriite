@@ -29,6 +29,40 @@
   <b>LINKS ARE CURRENTLY</b> .. <b>DOWN, PLEASE BE PATIENT!</b>
 </p>
 
+<p align="center">
+  <img src="https://64.media.tumblr.com/abce10866a2c0594287824cbb7197178/4f7dfb36276881c0-74/s500x750/0d91aebdbf972fe95782cedc4fe09b303569befd.pnj">
+</p>
+
+<p align="center">
+  <b>{<img src="https://64.media.tumblr.com/89a19e8ce79f17ded488ca9b84828b34/e79aa88fe4d1254a-46/s75x75_c1/8dc3b8943c6fdbd8299998cdf97d74d6a3045d47.gifv">}</b>  ;  <b>ABOUT ME</b>  ੈ♡˳
+</p>
+<p align="center">
+  <i>hi, the name's grimm. i'm pretty active on ponytown, especially during school!</i>
+  <br>
+  <i>please don't be afraid to say hi whenever i'm online! i'm nice, i swear.</i> <b>{<img src="https://64.media.tumblr.com/462e429fe0603de599dbca085d7a2b25/b55b2416bafcc208-63/s75x75_c1/a4764d491dafe2e6f34023c91732eb22d1d5242b.gifv">}</b>
+</p>
+<br>
+<p align="center">
+  <b><i>my interests include;</i></b>
+  <br>
+  <b>{<img src="https://64.media.tumblr.com/c30c8e7f4f6180b4ca91b14469fee8ab/ad60d78b5e5f8687-b4/s75x75_c1/493f5dde4d5c5087fee5d66c3832840e9fe18436.webp">} -</b> <i>homestuck</i>
+  <br>
+  <b>{<img src="https://64.media.tumblr.com/5e86b7654d62d9d319b315569498774e/f651789587d2564c-78/s75x75_c1/994f095fddbd503e00104fbfe3b4c3b63ccc0c4c.gifv">} -</b> <i>greek mythology</i>
+  <br>
+  <b>{<img src="https://64.media.tumblr.com/d39d479b7d6414d683189dffaace7e98/c55fc22ddd74d886-c9/s75x75_c1/c3a078edd5077f0c0b84e91715258a584c32d126.gifv">} -</b> <i>pokemon</i>
+  <br>
+  - <b>{<img src="https://64.media.tumblr.com/bda4e8b766d6f5aaa4f8505aea3ef0ea/650b905690781a76-d1/s75x75_c1/d18729f6b0a516079e96af58599fe786d0dcf9c8.gifv">} -</b> <i>roblox</i>
+  <br>
+  <b>{<img src="https://64.media.tumblr.com/f5cc1ec1f8eae991a8c88644f6e756c5/ef2c682e14cdd1c2-78/s75x75_c1/205e4e6764854421b937bbb1aaeea5734d096361.gifv">} -</b> <i>portal 1 & 2</i>
+  <br>
+  - <b>{<img src="https://64.media.tumblr.com/59f6b3904b1e260981a3698aacb2f57d/50d57e26184a7b02-96/s75x75_c1/1021f69dd43780c0f3b18fd9db5c74235ced085d.gifv">} -</b> <i>hades game</i>
+  <br>
+  - <b>{<img src="https://64.media.tumblr.com/919458390a5a8fab193afe88f138ea7f/2e61613ad1dd2d72-d5/s75x75_c1/54b52c2b9d8ec6345a4544ce3723909fc9e20289.gifv">} -</b> <i>musical theatre</i>
+</p>
+<p align="center">
+  
+</p>
+
 ***
 
 <p align="center">
