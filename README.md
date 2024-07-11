@@ -68,7 +68,7 @@
   <b>{<img src="https://64.media.tumblr.com/19ee200150e8d51f5208121d9aa9d634/f56584a62a20a833-6d/s75x75_c1/9cee4bdbbd400ee9c4241065e399433d562ee784.gifv">}</b>  ;  <b>DNI</b>  ੈ♡˳
 </p>
 <p align="center">
-  <i><b>DNI ;</b> BASIC DNI CRITERIA . proship / comship , generally a fucking weirdo (in a negative sense)</i>
+  <i><b>DNI ;</b> BASIC DNI CRITERIA . proship , generally a fucking weirdo (in a negative sense)</i>
   <br>
   <i><b>THIN ICE ;</b> hetalia fans</i> <b>{<img src="https://64.media.tumblr.com/2af12686d723a94aa91238468c2b3c00/0ae4b34a28e43cd5-f8/s75x75_c1/e42e8c9dcfc6768158ffd98c330f6e82db34c459.gifv">}</b>
 </p>
