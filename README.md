@@ -11,5 +11,9 @@
 </p>
 
 <p align="center">
+  <b>strawpage in bio is still a wip, so keep that in mind!</b>
+</p>
+
+<p align="center">
   <img src="https://64.media.tumblr.com/3f36620f44aadbe57343a3ada20afaf9/ee09abb08cabc6f1-a1/s1280x1920/42b8453426ce17d01736b1143fd56761afb6b7be.pnj">
 </p>
