@@ -1,1 +1,1 @@
-<3
+follow my new accoubnt its in bio
